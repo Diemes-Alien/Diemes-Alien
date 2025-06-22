@@ -1,4 +1,4 @@
-# 👽 Alien Dev 🚀 | Diemes
+# 👽 Alien Dev 🚀 | Diemes Alien
 
 ### Explorando o código, o universo e tudo mais...
 
